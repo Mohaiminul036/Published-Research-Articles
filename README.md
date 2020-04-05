@@ -1,1 +1,1 @@
-# Research-Article
+Currently, I'm an undergraduate student at Chongqing University of Science and Technology. I'm working with a research group at my school. Some of our research articles published in the International Journal. 
